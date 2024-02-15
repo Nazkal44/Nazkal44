@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on iotex
 - 📫 How to reach call me bro 😎
 - 😄 Pronouns🐱
-- ⚡ Fun fact🇮🇩
+- ⚡ Fun fact🐯
 
 <!---
 Nazkal44/Nazkal44 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
